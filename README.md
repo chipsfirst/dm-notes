@@ -1,2 +1,2 @@
 # dm-notes
-My d&amp;d notes, files and other things
+Мои файлы для переводов и резервные
